@@ -4,7 +4,7 @@
 
 Start building your farm, grow your assets, and explore the Unimon ecosystem.
 
-CA pump.fun : xxxxxxxxxxpump
+CA pump.fun : kGYjXY8ZpSa6Fa3mMHGbFUE3gXXRFcdo1ExnRdGpump
 ---
 
 ## 🚀 Overview
